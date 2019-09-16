@@ -1,0 +1,1 @@
+# LAMMPs_log_mechtest_reading
